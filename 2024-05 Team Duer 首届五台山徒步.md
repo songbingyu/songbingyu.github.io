@@ -19,7 +19,8 @@ Team Duer 成立后在徒步方面还没有所建树，在超哥的带领下Team
 > ——仓央嘉措
 >
 
-![Alt text](./1714119832457.png)
+![image](https://github.com/songbingyu/duer/assets/6246511/9bd7bf8b-cbee-4c18-af97-b418cec21848)
+
 
 ## 目的
 通过这次五台山大朝台激发徒步热情，增加朋友之间的感情， 记录美好瞬间，留下念想，让超哥牛逼响彻五台山， 成为TeamDuer每年的保留项目。
