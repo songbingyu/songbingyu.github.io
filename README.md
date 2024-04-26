@@ -17,8 +17,7 @@ Team Duer 成立后在徒步方面还没有所建树，在超哥的带领下Team
 > 只为途中与你相见  
 > ——仓央嘉措  
 >
-
-<img src=https://github.com/songbingyu/duer/assets/6246511/9bd7bf8b-cbee-4c18-af97-b418cec21848 width=40% />
+<img width="664" alt="image" src="https://github.com/songbingyu/songbingyu.github.io/assets/6246511/5f2cbeb6-2ef0-46e3-8efb-4836e2d44263">
 
 
 ## 1.2 目的
